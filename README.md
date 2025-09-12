@@ -14,7 +14,7 @@
 
 ㅤㅤ◞    ꜝꜞ **currently** ˳ 𓏲 ˑ  
 - 🍓 hanging out in PonyTown  
-- 🫧 making skins & around in disocord  
+- 🫧 making skins & around in discord  
 - 💌 always looking for new moots!  
 
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶  
