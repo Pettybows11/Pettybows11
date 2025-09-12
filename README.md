@@ -29,6 +29,6 @@
 ۫   𐑺   **find me** ˑ ៹ ⋆｡°✩  
 - 🌐 discord: yourname#0000  
 - 🩷 twitter / insta: @yourhandle  
-- 🌸 PonyTown: usually at [describe your spot ✧]  
+- 🌸 PonyTown: usually at the docks chilling ✧ (Prob finding a good rp) 
 
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
