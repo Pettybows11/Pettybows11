@@ -13,7 +13,7 @@
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶  
 
 ㅤㅤ◞    ꜝꜞ **currently** ˳ 𓏲 ˑ  
-- 🍓 hanging out in PonyTown  
+- 🍓hanging out in PonyTown  
 - 🫧 making skins & around in discord  
 - 💌 always looking for new moots!  
 
@@ -24,11 +24,11 @@
 - 🌷 **I will allow c+h (Cuddle plus hug)**
 - 🌸 **Im 3teen so dont be weird unless your my close friend (who jokes around obvi)**  
 - 🩰 **Im a multishipper and dont int me if your a proshipper or any other bad shippers that I cant remember of...**
+- 🧁 **Interact me !!**
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶  
 
 ۫   𐑺   **find me** ˑ ៹ ⋆｡°✩  
-- 🌐 discord: yourname#0000  
-- 🩷 twitter / insta: @yourhandle  
+- 🌐 discord: **@pettybow** 
 - 🌸 PonyTown: usually at the docks chilling ✧ (Prob finding a good rp) 
 
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
