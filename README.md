@@ -1,6 +1,5 @@
 # ︶⊹︶︶⠀🎀 ✦ welcome !! ✦ 🎀⠀︶︶⊹︶ ﾟ ˖
 [![Typing SVG](https://readme-typing-svg.herokuapp.com?font=Pacifico&pause=1000&color=F776E2&width=435&lines=Welcome+to+my+Readme+pretty+angels+%F0%9F%8E%80%E2%82%8A%CB%9A%E0%B7%86)](https://git.io/typing-svg)
-    <img src=" https://i.pinimg.com/originals/42/24/aa/4224aa465dc517b26207c752813ecb1b.jpg" alt="header">   
 
 ۫   𐑺   **. . sp01led1np1nk . .** ˑ   ⌕ @Pettybows11 ࣭   ᘐ  
 
