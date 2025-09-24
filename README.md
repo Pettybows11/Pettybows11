@@ -27,7 +27,7 @@
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶  
 
 ۫   𐑺   **find me** ˑ ៹ ⋆｡°✩  
-- 🌐 discord: **@pettybow** 
+- 🌐 discord: **@angerissuesarereal** 
 - 🌸 PonyTown: usually at the docks chilling ✧ (Prob finding a good rp) 
 
 ︶⊹︶︶⠀୨୧⠀︶︶⊹︶
