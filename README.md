@@ -5,7 +5,7 @@
 
 ㅤㅤ◞    ꜝꜞ **about me** ˳ 𓏲 ˑ  
 𓂃 ❀ ⋆ ˚｡𖦹 ⋆｡°✩  
-- 🌸 pronouns: she/them (or any)  
+- 🌸 pronouns: they/them (or any)  
 - 🌷 hobby: PonyTown ✧ chatting ✧ role playing  (or just casually relaxing)
 - 🩰 vibe: soft / pink / pastel aesthetic    
 
